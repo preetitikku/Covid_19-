@@ -10,3 +10,5 @@
 ![covid-19 im](https://github.com/preetitikku/Covid_19-/assets/141815756/5e8603c1-a1d1-4641-9f00-7709fec67842)
 
 ![covid-19](https://github.com/preetitikku/Covid_19-/assets/141815756/c0c9504e-5732-4e45-8131-b5dd9da40f03)
+
+Thanks
